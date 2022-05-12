@@ -54,3 +54,15 @@ Simpel WhatsApp Bot Untuk Fiturnya Mari Sama Kita Tambahkan Biar kece 🗿
 #  [`All Patner Saya`](https://github.com)
 #  [`All Subcriber`](https://youtube.com/Dhabotz)
 #  [`All Recorder Sc`](https://github.com)
+
+@aqil
+@bijak
+@rusydan
+@irwan
+@royyan
+@rayyan
+@sobran
+@joan
+@reifan
+@satrio
+@raga
